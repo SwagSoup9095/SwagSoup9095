@@ -1,1 +1,1 @@
-Contact: SwagSoup#0383
+Discord Contact: .swagsoup
